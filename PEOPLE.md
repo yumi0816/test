@@ -1,2 +1,0 @@
-Yury M
-Irina M
